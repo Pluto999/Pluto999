@@ -1,3 +1,3 @@
 - 👋 Name: Pluto999
-- 👀 Owner of GalaxyFire.nbb.one
+- 👀 
 - 📫 Discord: Pluto999#3028
